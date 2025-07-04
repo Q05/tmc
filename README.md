@@ -6,3 +6,4 @@ https://finances.wallonie.be/home/fiscalite/fiscalite-des-vehicules/tableaux-des
 https://finances.wallonie.be/files/bar%C3%A8mes%20taxes%20v%C3%A9hicules/baremes_taxe_de_circulation.pdf
 https://finances.wallonie.be/home/fiscalite/fiscalite-des-vehicules/voiture---voiture-hybride.html
 https://finances.wallonie.be/files/actualites/RTMC%20triptyque%20site.pdf
+https://www.wallonie.be/fr/demarches/sinformer-sur-la-taxe-eco-malus-de-mon-vehicule
