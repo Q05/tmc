@@ -7,3 +7,4 @@ https://finances.wallonie.be/files/bar%C3%A8mes%20taxes%20v%C3%A9hicules/baremes
 https://finances.wallonie.be/home/fiscalite/fiscalite-des-vehicules/voiture---voiture-hybride.html
 https://finances.wallonie.be/files/actualites/RTMC%20triptyque%20site.pdf
 https://www.wallonie.be/fr/demarches/sinformer-sur-la-taxe-eco-malus-de-mon-vehicule
+https://www.rtbf.be/article/combien-va-vous-couter-la-mise-en-circulation-d-un-vehicule-en-wallonie-a-partir-de-ce-1er-juillet-decouvrez-le-avec-notre-calculateur-11568362
