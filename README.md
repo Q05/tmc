@@ -18,3 +18,5 @@ https://www.rtbf.be/article/combien-va-vous-couter-la-mise-en-circulation-d-un-v
 
 https://www.readytoroad.be/nouvelle-taxe-de-mise-en-circulation-pour-la-wallonie-en-2025/
 
+https://etaamb.openjustice.be/fr/decret-du-07-septembre-2023_n2023046826.html
+
