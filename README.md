@@ -15,3 +15,6 @@ https://finances.wallonie.be/files/actualites/RTMC%20triptyque%20site.pdf
 https://www.wallonie.be/fr/demarches/sinformer-sur-la-taxe-eco-malus-de-mon-vehicule
 
 https://www.rtbf.be/article/combien-va-vous-couter-la-mise-en-circulation-d-un-vehicule-en-wallonie-a-partir-de-ce-1er-juillet-decouvrez-le-avec-notre-calculateur-11568362
+
+https://www.readytoroad.be/nouvelle-taxe-de-mise-en-circulation-pour-la-wallonie-en-2025/
+
